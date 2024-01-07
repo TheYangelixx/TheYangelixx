@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌌 Obsessed with art, novels, programming, physics, and astronomy<br>🔭 Currently working on my programming skills<br>📚 Mathematics student at NODET<br>
+🌌 Obsessed with art, novels, programming, physics, and astronomy<br>🔭 Currently studying AI<br>📚 Mathematics student at NODET<br>
 
 
 ## 🌐 Socials:
